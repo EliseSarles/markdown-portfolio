@@ -1,0 +1,9 @@
+- Cats
+- Mac and Cheese
+- Doggos
+- Electronics
+- Books
+- Theater
+- Dancing
+- Singing
+- Annoying people
