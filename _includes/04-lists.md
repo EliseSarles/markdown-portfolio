@@ -1,1 +1,9 @@
-Replace this with a list of your favorite things.
+- Cats
+- Mac and Cheese
+- Doggos
+- Electronics
+- Books
+- Theater
+- Dancing
+- Singing
+- Annoying people
